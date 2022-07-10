@@ -10,4 +10,5 @@ Here are some of the previews. Download the high quality versions from above :
 
 2) Street in 3d neon wallpaper :
 <br>
-![image](https://user-images.githubusercontent.com/106448796/178131663-f6d15070-738b-4488-ac6e-e25ff49f94ad.png)
+![image](https://user-images.githubusercontent.com/106448796/178133334-cb9854ef-165e-43cc-a16e-ed3ac9e5f4d5.png)
+
